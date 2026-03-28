@@ -1,4 +1,4 @@
-<BTask 1: Digital Literacy Infographic/B>
+Task 1: Digital Literacy Infographic/B>
 Objective
 To create an infographic explaining digital literacy for beginners.
 
