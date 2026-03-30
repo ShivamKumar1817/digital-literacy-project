@@ -49,7 +49,7 @@ Studied identity theft in the Aadhaar context and created a prevention checklist
 
 •⁠  ⁠Google Form Quiz: https://docs.google.com/forms/d/e/1FAIpQLSds9DfCU7CJBWKCliG6uesamTk2DcTCODt-RxWel7AQPyRNMw/viewform?usp=dialog
 
-•⁠  ⁠GitHub Profile: https://github.com/pranshu25bai11057-gif
+•⁠  ⁠GitHub Profile: https://github.com/ShivamKumar1817
 
 ---
 
